@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @julia-268
-- 👀 I’m interested in food, sustainability, and humans.
+- 👀 I’m interested in automotive IT and IT finance processes.
 - 🌱 I’m currently learning R and many other things. Please be gentle, I´m still learning.
 - 💞️ I’m looking to collaborate on various IT projects or other cool iniatives. 
 - 📫 How to reach me julia.eberlein@gmx.de
